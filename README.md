@@ -1,2 +1,5 @@
 # hello-world
-beginning
+
+Ssup!
+Somone new here or like in a game neewbie.
+It'll be interesting cause this is not my major.
